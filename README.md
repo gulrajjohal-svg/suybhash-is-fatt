@@ -1,1 +1,0 @@
-# suybhash-is-fatt
